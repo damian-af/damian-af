@@ -1,12 +1,12 @@
 Me llaman Damian Flores. Me gusta la tranquilidad y la contemplación, y como resultado la interpretación y la búsqueda de los significados de nuestras relaciones con el ambiente.
 
-No soy un árbol, un planeta o una montaña, me tocó ser un Homo sapiens y eso significa que en mi ambiente actual mis características más espirituales antes escritas no prosperan fácilmente, así que tengo que definirme de otras maneras para subsistir. Soy entonces una serie de "me gusta/interesa/inquieta X así que me dedico a Y".
+No soy un árbol, un planeta o una montaña, me tocó ser un Homo sapiens y eso significa que en mi ambiente actual mis características más naturales antes escritas no prosperan fácilmente, así que tengo que definirme de otras maneras para subsistir. Soy entonces una serie de "me gusta/interesa/inquieta X así que me dedico a Y".
 
 ## Historia
 
 ### Computadoras
 
-Por casi 18 años hice una carrera basada en las computadoras y los sistemas de información. Estudié Informática en el CECyT #14 e Ingeniería en Sistemas en la ESCOM ambas del IPN, trabajé varios años para empresas medianas y grandes en el area de ingeniería de software principalmente como programador y líder técnico: Astrata, el ICyTDF (Instituto de Ciencia y Tecnología del Distrito Federal), la SECITI (Secretaría de Ciencia, Tecnología e Inovación), Linio y Fox Business y Fox Television Stations a través de Wizeline. Fue una larga temporada con mucho aprendizaje, diversión y personas increíbles.
+Por casi 18 años hice una carrera basada en las computadoras y los sistemas de información. Estudié Informática en el CECyT #14 e Ingeniería en Sistemas en la ESCOM ambas del IPN, trabajé varios años para empresas medianas y grandes en el área de ingeniería de software principalmente como programador y líder técnico: Astrata, el ICyTDF (Instituto de Ciencia y Tecnología del Distrito Federal), la SECITI (Secretaría de Ciencia, Tecnología e Inovación), Linio y Fox Business y Fox Television Stations a través de Wizeline. Fue una larga temporada con mucho aprendizaje, diversión y personas increíbles.
 
 ### Introspección
 
