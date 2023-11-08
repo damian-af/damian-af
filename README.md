@@ -1,6 +1,8 @@
 Me llaman Damian Flores. Me gusta la tranquilidad y la contemplación, y como resultado la interpretación y la búsqueda de los significados de nuestras relaciones con el ambiente.
 
-No soy un árbol, un planeta o una montaña, me tocó ser un Homo sapiens y eso significa que en mi ambiente actual mis características más naturales antes escritas no prosperan fácilmente, así que tengo que definirme de otras maneras para subsistir. Soy entonces una serie de "me gusta/interesa/inquieta X así que me dedico a Y".
+No soy un árbol, un planeta o una montaña, me tocó ser un Homo sapiens y en mi sociedad actual estas características más naturales antes escritas no hacen prosperar tan fácilmente, así que tengo que definirme de otras maneras para subsistir. Soy entonces una serie de "me gusta/interesa/inquieta X así que me dedico a Y".
+
+- Estoy interesado en la disposición de residuos no orgánicos, así que ideé una posible manera de disminuir el crecimiento de residuos en vertederos. [Mercado-de-residuos](https://entintaverde.org/stories/mercado-de-residuos/).
 
 ## Historia
 
